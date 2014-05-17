@@ -24,7 +24,7 @@
 - Anteater
 - Cerce - http://cerce.bandcamp.com
 - Svffer
-- Code orange Kids
+- Code Orange Kids
 - Oathbreaker
 - Gattaca
 - Strafplanet
