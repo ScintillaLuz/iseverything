@@ -39,8 +39,8 @@
 ### Indie / Pop / Electro
 
 - Warpaint
-- Made In Heights (https://www.youtube.com/watch?v=uezFxbzX0dk)
-- Bat And Ball (https://www.youtube.com/watch?v=Gqfb3z-8AUE)
+- Made In Heights - https://www.youtube.com/watch?v=uezFxbzX0dk
+- Bat And Ball - https://www.youtube.com/watch?v=Gqfb3z-8AUE
 - Best Coast - https://www.youtube.com/watch?v=aUzaQ94kF8g
 
 ### Hip Hop
