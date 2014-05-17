@@ -44,6 +44,7 @@
 - Bat And Ball - https://www.youtube.com/watch?v=Gqfb3z-8AUE
 - Best Coast - https://www.youtube.com/watch?v=aUzaQ94kF8g
 
+
 ### Hip Hop
 
 - Reverie - https://www.youtube.com/watch?v=7nyJhDFY6z4
@@ -52,6 +53,7 @@
 - Vida Killz - https://www.youtube.com/watch?v=WQkr5iMimoQ
 - Kreayshawn - https://vimeo.com/23609038
 - Angel Haze - https://soundcloud.com/angelhazeym/same-love-angel-haze
+- Tecla - https://www.youtube.com/watch?v=Sj6hp3ykNfU
 
 ### Singer / Songwriter
 
