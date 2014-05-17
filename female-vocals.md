@@ -35,6 +35,7 @@
 - Mahria
 - Dollores
 - Omare (ex Hvngry Lungs)
+- WolfxDown - https://www.youtube.com/watch?v=1qhYPVnpUQs
 
 ### Indie / Pop / Electro
 
@@ -48,6 +49,7 @@
 - Reverie - https://www.youtube.com/watch?v=7nyJhDFY6z4
 - Gavlyn - https://www.youtube.com/watch?v=JELwIujC5-U
 - Vellow Wonder - https://www.youtube.com/watch?v=r36Nbur77aM
+- Vida Killz - https://www.youtube.com/watch?v=WQkr5iMimoQ
 
 ### Singer / Songwriter
 
