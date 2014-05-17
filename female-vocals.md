@@ -50,6 +50,8 @@
 - Gavlyn - https://www.youtube.com/watch?v=JELwIujC5-U
 - Vellow Wonder - https://www.youtube.com/watch?v=r36Nbur77aM
 - Vida Killz - https://www.youtube.com/watch?v=WQkr5iMimoQ
+- Kreayshawn - https://vimeo.com/23609038
+- Angel Haze - https://soundcloud.com/angelhazeym/same-love-angel-haze
 
 ### Singer / Songwriter
 
