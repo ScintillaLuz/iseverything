@@ -16,6 +16,7 @@
 - Bridge And Tunnel
 - Tigers Jaw
 - Aficionado
+- The Anniversary - https://www.youtube.com/watch?v=Va_RU-tph-Y
 
 ### heavy female vocals
 
