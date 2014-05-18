@@ -17,6 +17,7 @@
 - Tigers Jaw
 - Aficionado
 - The Anniversary - https://www.youtube.com/watch?v=Va_RU-tph-Y
+- Circle Takes The Square
 
 ### heavy female vocals
 
