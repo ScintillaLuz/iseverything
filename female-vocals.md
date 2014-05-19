@@ -39,6 +39,7 @@
 - Omare (ex Hvngry Lungs)
 - WolfxDown - https://www.youtube.com/watch?v=1qhYPVnpUQs
 - Lord Snow
+- Offsides - http://inmyheartrecords.com/track/offsides-with-great-honor
 
 ### Indie / Pop / Electro
 
