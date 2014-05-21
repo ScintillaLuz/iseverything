@@ -9,6 +9,7 @@
 - Slingshot Dakota
 - Procession
 - Waxahatchee
+- Rainer Maria
 
 ### partly female vocals
 
