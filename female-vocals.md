@@ -49,6 +49,11 @@
 - Bat And Ball - https://www.youtube.com/watch?v=Gqfb3z-8AUE
 - Best Coast - https://www.youtube.com/watch?v=aUzaQ94kF8g
 - Now, Now - https://www.youtube.com/watch?v=202gBlBQtok
+- First Aid Kit
+
+### Punk / Punk-HC
+
+- Rakta - http://rakta.bandcamp.com/
 
 
 ### Hip Hop
