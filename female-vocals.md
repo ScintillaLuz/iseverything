@@ -54,7 +54,7 @@
 ### Punk / Punk-HC
 
 - Rakta - http://rakta.bandcamp.com/
-– Hysterics – https://soundcloud.com/mladys-records/hysterics-outside-in
+- Hysterics – https://soundcloud.com/mladys-records/hysterics-outside-in
 
 
 ### Hip Hop
