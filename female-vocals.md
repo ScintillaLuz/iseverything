@@ -10,6 +10,7 @@
 - Procession
 - Waxahatchee
 - Rainer Maria
+- Kittyhawk – http://kittyhawkisaband.bandcamp.com/
 
 ### partly female vocals
 
