@@ -43,6 +43,10 @@
 - Offsides – http://inmyheartrecords.com/track/offsides-with-great-honor
 - Cloud Rat – http://cloudrat.bandcamp.com/
 
+### Metal / Post Metal / Trash
+
+- Nervosa – https://www.youtube.com/watch?v=HRuDTAQBLZQ
+
 ### Indie / Pop / Electro
 
 - Warpaint
