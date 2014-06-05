@@ -61,6 +61,7 @@
 
 - Rakta - http://rakta.bandcamp.com/
 - Hysterics – https://soundcloud.com/mladys-records/hysterics-outside-in
+- Quaaludes – http://quaaludes.bandcamp.com/
 
 
 ### Hip Hop
