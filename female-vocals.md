@@ -43,6 +43,7 @@
 - Lord Snow
 - Offsides – http://inmyheartrecords.com/track/offsides-with-great-honor
 - Cloud Rat – http://cloudrat.bandcamp.com/
+- The Love And Terror Cult – https://www.youtube.com/watch?v=9Lp7IuWEsxQ#t=31
 
 ### Metal / Post Metal / Trash
 
