@@ -20,6 +20,7 @@
 - Aficionado
 - The Anniversary – https://www.youtube.com/watch?v=Va_RU-tph-Y
 - Circle Takes The Square
+- For Everest – https://foreverest.bandcamp.com/
 
 ### heavy female vocals
 
@@ -43,6 +44,7 @@
 - Lord Snow
 - Offsides – http://inmyheartrecords.com/track/offsides-with-great-honor
 - Cloud Rat – http://cloudrat.bandcamp.com/
+- Anomie
 
 ### Metal / Post Metal / Trash
 
@@ -56,6 +58,7 @@
 - Best Coast – https://www.youtube.com/watch?v=aUzaQ94kF8g
 - Now, Now – https://www.youtube.com/watch?v=202gBlBQtok
 - First Aid Kit
+- Adult Mom – https://adultmom.bandcamp.com/
 
 ### Punk / Punk-HC
 
